@@ -1,1 +1,1 @@
-# Challenge Amigo Secreto XD
+# Challenge Amigo Secreto
